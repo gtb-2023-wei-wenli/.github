@@ -5,8 +5,8 @@
 
 ****
 - I value the spiritual beauty
-![img_2.png](img_2.png)
-![img_2.png](https://github.com/gtb-2023-wei-wenli/.github/blob/main/assets/)
+
+![img_2.png](https://github.com/gtb-2023-wei-wenli/.github/blob/main/assets/17e4275799db0193835fc7b6bb9bfc7.jpg)
 
 
 - I talk about losing weight every day
