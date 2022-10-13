@@ -5,6 +5,6 @@
 
 ****
 - 1-I value the spiritual beauty
-- ! [HOWEVER](/assets/17e4275799db0193835fc7b6bb9bfc7.jpg)
+- ! [HOWEVER](![img.png](img.png))
 - 2-I talk about losing weight every day
-- ! [HOWEVER](/assets/972fcff94372582885006440234d70a.jpg)
+- ! [HOWEVER](![img_1.png](img_1.png))
