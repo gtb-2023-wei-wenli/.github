@@ -1,8 +1,9 @@
-## Hello strangers~Wellcome to my org 🌼
+## Hello~Wellcome to my org 🌼
 
+- Before u know me well，I hope U could read this ~
+- Which may help ~
 
-
-<!--
-
--->
-![f4eb85e898128f04c6dc2717aafb517](https://user-images.githubusercontent.com/115357446/195415226-c0ba8506-ce8d-4207-9760-53768ebb1157.jpg)
+****
+- 1-I value the spiritual beauty
+- ！[HOWEVER](/assets/1.jpg)
+- 
