@@ -10,4 +10,4 @@
 
 
 - I talk about losing weight every day
-![img_1.png](img_1.png)
+![img_1.png](https://github.com/gtb-2023-wei-wenli/.github/blob/main/assets/972fcff94372582885006440234d70a.jpg)
